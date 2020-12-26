@@ -1,1 +1,0 @@
-# StardewValley_CHT_ModInstaller
